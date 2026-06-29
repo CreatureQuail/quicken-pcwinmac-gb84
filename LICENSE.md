@@ -1,4 +1,4 @@
-# 
+# Free Quicken extensions for Mac OS | Smart Quicken extensions for PC Windows. Featuring digital signatures and direct deposit — optimized for maximum performance on every platform.
 
 
 
